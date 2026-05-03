@@ -1,1 +1,2 @@
 # vse_vrode_bi_normaldi
+fdafa
